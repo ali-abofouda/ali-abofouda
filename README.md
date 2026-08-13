@@ -34,7 +34,7 @@ Data Cleaning · Feature Engineering · Prediction Models · Statistical Analysi
 
 ### 🌐 Connect With Me
 - **LinkedIn:** [linkedin.com/in/ali-ashraf-8b619b22a](https://www.linkedin.com/in/ali-ashraf-8b619b22a)  
-- **Twitter (X):** [twitter.com/realaliashraf](https://twitter.com/realaliashraf)  
+- **Twitter (X):** [twitter.com/realaliashraf](https://twitter.com/justAliaAhraf)  
 
 ---
 
